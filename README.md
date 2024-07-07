@@ -51,7 +51,7 @@ Wo6ล"_รฐaZญ+ส\<C
 D/ไศไ€^๙ถ "kค
 Zf=f ฆจ15ฎ{'sSถฉTต62^+3 ต1๕ T-ฟ"ดๆ"`ฐStWc85 m% ?, <ษล Dบht
 ภน*3ฟ5ล_/ฏ"ฝ/น
-0pะว...\Lvต B ฮ€Z)!L@บาไศ cฤ tEฃ U(wFirefox https://apps.microsoft.com/detail/9PKTQ5699M62B9mผ
+0pะว...\Lvต B ฮ€Z)!L@บาไศ cฤ tEฃ
 ชมLq JM€ ๗- 004 X"<ขศp 5 Tฯ Lญk...€Z7 ป
 ๅรอฟรก~ %PพV๗๔ มlorp 1;ฮฆ2"ฬ ด fbX_J๖
 * f๗คกร฿hใท อิ-พ7แแ 3 €7ฑ=.กี-ป; (จ ธ์ '5"
